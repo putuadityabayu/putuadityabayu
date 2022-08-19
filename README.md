@@ -14,6 +14,7 @@ I'm currently learning:
 You can see all my projects in my organization repository [@portalnesia](https://github.com/portalnesia)
 
 Contact:    
+Email: [aditya@portalnesia.com](mailto:aditya@portalnesia.com)     
 Instagram: [@putuaditya_sid](https://instagram.com/putuaditya_sid)    
 Twitter: [@PutuAditya_SID](https://twitter.com/putuaditya_sid)  
 Telegram: [@putuaditya_sid](https://t.me/putuaditya_sid)     
